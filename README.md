@@ -1,3 +1,4 @@
 Hello!
 My name is Devatendo
-My name on most other things is Tendom/Tendom_
+I don't really do much
+That's really it for now
